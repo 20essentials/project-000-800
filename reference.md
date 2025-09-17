@@ -1,2 +1,0 @@
-- **Reference / Inspiration ⬇️**
-  - [Image reference](https://wallhaven.cc/w/nmvxd8)
